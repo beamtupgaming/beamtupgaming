@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @beamtupgaming
+- 👋 Hi, I’m Abner.
+- 🚑 I'm a current first responder on a 911 ALS ambulance.
 - 👀 I’m interested in games, animals, projects.
 - 🌱 I’m currently learning how to exist.
 - 💞️ I’m looking to collaborate on anything I can learn a thing or two on.
