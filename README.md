@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning how to exist effectively. I strive to learn something new every single day.
 - 💞️ I’m looking to collaborate on anything I can learn a thing or two on.
 - 📫 How to reach me - beamtupgaming@gmail.com or abner0018 on Discord
-- I am an amateur LUA coder, don't hate.
+- I am an amateur coder, don't hate.
